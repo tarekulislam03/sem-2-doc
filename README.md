@@ -1,6 +1,6 @@
 ##  Sem-2 Exam Docs
 
-Guys thi
+Read the below instructions..
 
 ##  Getting Started (First Time Only)
 
